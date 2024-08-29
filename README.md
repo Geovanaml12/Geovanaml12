@@ -15,5 +15,5 @@ Estou estudando na {Alura} (https://www.alura.com.br/)
 **VOCÊ PODE ENTRAR EM CONTATO COMIGO ATRAVÉS**
 👇🏻
 Macedo.lopes@escola.pr.gov.br
-[https://tenor.com/pt-BR/view/mav78aqui%C3%A9corinthians-gif-25314594]
+https://tenor.com/pt-BR/view/corinthians-my-beloved-gif-27534237
 
